@@ -1,6 +1,6 @@
 ### Hi i'm MIDHLAJ 👋
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Lemon+milk&color=F7000&lines=Hi...++im+RIBINZX;Welcome+to+my+profile;full+stack+developer)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Lemon+milk&color=F7000&lines=Hi...++im+Midhlaj;Welcome+to+my+profile;full+stack+developer)](https://git.io/typing-svg)
 #### TOTAL REPO VIEWS📍
 ![Visitor Count](https://profile-counter.glitch.me/Midhlaj8/count.svg)
 
