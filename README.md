@@ -4,7 +4,7 @@
 #### TOTAL REPO VIEWS📍
 ![Visitor Count](https://profile-counter.glitch.me/Midhlaj8/count.svg)
 
-<img src=naruto and luffy by ZefiMankai on DeviantArt (1).jpeg>
+<img src=bg.jpeg>
 
 # Hi ,<a href="Hey"><img src="https://raw.githubusercontent.com/TOXIC-DEVIL/TOXIC-DEVIL/TOXIC-DEVIL-OFFICIAL/media/Hi.gif" width="48px"></a> I'm MIDHLAJ&nbsp;
 
