@@ -28,7 +28,7 @@
 
 - 💬 Ask me about *ME*
 
-- 📫 How to reach me *https://wa.me/91 9847609019
+- 📫 How to reach me *https://wa.me/919847609019
 
 - ⚡️ Fun fact *I THINK IAM VERY POSITIVE*
 
